@@ -1,4 +1,4 @@
-# 让成长有迹可循————Galaxy's Records of Growth
+# 让成长有迹可循——Galaxy's Records of Growth
 
 
 
