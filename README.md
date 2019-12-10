@@ -17,8 +17,9 @@
 [《定投改变命运》——内化总结（下）](https://github.com/Galaxy1227/Galaxy1227.github.io/blob/master/%E3%80%8A%E5%AE%9A%E6%8A%95%E6%94%B9%E5%8F%98%E5%91%BD%E8%BF%90%E3%80%8B%E2%80%94%E2%80%94%E5%86%85%E5%8C%96%E6%80%BB%E7%BB%93%EF%BC%88%E4%B8%8B%EF%BC%89.md)
 
 
+### 成长随笔
 
-
+[每一个概念都不简单，“自学”更是如此](https://github.com/Galaxy1227/Galaxy1227.github.io/blob/master/%E6%AF%8F%E4%B8%80%E4%B8%AA%E6%A6%82%E5%BF%B5%E9%83%BD%E4%B8%8D%E7%AE%80%E5%8D%95%EF%BC%8C%E2%80%9C%E8%87%AA%E5%AD%A6%E2%80%9D%E6%9B%B4%E6%98%AF%E5%A6%82%E6%AD%A4.md)
 
 
 
